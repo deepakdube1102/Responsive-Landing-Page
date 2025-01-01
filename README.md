@@ -1,1 +1,1 @@
-https://deepakdube1102.github.io/PRODIGY_WD_01/
+https://deepakdube1102.github.io/Responsive-Landing-Page/
